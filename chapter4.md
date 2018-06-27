@@ -1,7 +1,7 @@
 # Chapter 4
 The World Cup, one of the **majorest** events, held in Russia, is storming from its fans to others around.
 
-Football is considered as No. 1 on the most popular sports **rank**. Hence, a lot of fans all over the world took **flights** to Russia to get involved in this once of every four years' celebration. There is no doubt that the Russian shows their warm **greetings** to their guests, but I'm **curious** about the **dormitories** and **canteens** provided well or not.
+Football is considered as No. 1 on the most popular sports **rank**. Hence, a lot of fans all over the world took **flights** to Russia to get involved in this once of every four years' celebration. There is no doubt that the Russian show their warm **greetings** to their guests, but I'm **curious** about the **dormitories** and **canteens** provided well or not.
 
 **In general**, many of the European and South American countries are supposed to be competitive on the match, such as: **Spain**, **Italy**, Brazil, etc. Unlike commercial matches, in the World Cup the football teams **represent** for their people and countries, and **defend against** their old teammates. However, it is said by Bai, a famous host from CCTV, that all those, related to football, should come here have been in Russia except the National Male Football Team. As far as I see, quite a few football fans feel **angry** for them, as their **losing face**'s behaviors.
 
