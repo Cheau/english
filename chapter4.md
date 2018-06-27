@@ -9,4 +9,4 @@ The Chinese National Male Football Team members are **simply** well paid **emplo
 
 Although the games are going on night, I still read some news the other day. One photo surprised me, that the female **Muslim adults** did not have their **cheeks** and arms covered by clothing. Another shot touched my heart that a **posture** of Messi who turned his back to the audience after match - no **frowning**, no **facial** emotions, but deeply upset for his **respectful** people and country.
 
-After all, a few teams are still **likely to approach** the champion, included Messi.
+After all, a few teams are still **likely to approach** the champion, included Messi's.
